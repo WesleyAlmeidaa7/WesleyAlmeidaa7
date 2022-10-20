@@ -2,6 +2,7 @@
 🎒Estudante do Colégio Estadual Victor Bussmann
 🎈Tenho 15 Anos 
 ♐Meu signo é Sagitário
+📧Wesleyalmeida0923@gmail.com
 🧑🏻‍🎓Quando me formar quero cursar "Divogacia criminal"
 🎥Adoro assistir filmes/séries
 🐊Meu apelido é "Jacaré"
