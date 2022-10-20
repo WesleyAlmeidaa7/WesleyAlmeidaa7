@@ -1,6 +1,7 @@
 📍Campo Do Tenente/PR
 🎒Estudante do Colégio Estadual Victor Bussmann
 🎈Tenho 15 Anos 
+📧Wesleyalmeida0923@gmail.com
 ♐Meu signo é Sagitário
 🧑🏻‍🎓Quando me formar quero cursar "Divogacia criminal"
 🎥Adoro assistir filmes/séries
